@@ -83,6 +83,7 @@ Los laicos deberíamos ser otra cosa, pero no lo somos. ¿Cuál sería el camino
 
 
 ### Parroquias 'poseidas'
+#### 17/09/2018
 Mi parroquia, a la que acudo desde hace algunos años, está 'poseida'.   
 La de mi pueblo, también, también está 'poseida'.  
 Desde hace poco, no mucho más de 10 días.  
