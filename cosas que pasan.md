@@ -1,5 +1,5 @@
 ### 08/11/2017
-## Cosas que pasan, cosas que me pasan
+## Cosas que pasan
 
 Llevo meses deseando ponerme a escribir, a redactar, a ver si aclaro los pensamientos; meses sin poder ponerme, sin comenzar... hasta hoy.  
 Hoy, que casi no tengo ganas, que casi no me interesa, que casi lo he olvidado.   
@@ -80,3 +80,13 @@ Así es la vida.
 *"Es habitual que en estas líneas se hable de la confianza en los sacerdotes, etc etc etc. No me parece mal, pero me gustaría que la gente tuviera - hubiera recibido previamente - una formación espiritual, teológica y religiosa suficiente. No tiene sentido lo que se vive en la iglesia, en la que la última palabra siempre la tienen los curas. Créeme que hay muchos santos sacerdotes, pero muchos no estudian, muchos no oran o no tienen vida espiritual. Por lo que sea. Y eso lo pagamos los laicos."*
 Los laicos deberíamos ser otra cosa, pero no lo somos. ¿Cuál sería el camino para llegar ahí? ¿Cómo saberlo?  
 "*El gran problema es que la fe en Dios, el de verdad, el Padre/Madre bueno, no se trasmite. A nadie le importa y no somos capaces de hacer ver que ser como Jesús, ser de los suyos, merece la pena. Que salir del camino, como el Buen Samaritano, nos humaniza más que pisar el acelerador. Pues no, no sabemos contagiarlo.*" http://www.opuslibros.org/nuevaweb/modules.php?name=News&file=article&sid=25189   
+
+
+### Parroquias 'poseidas'
+Mi parroquia, a la que acudo desde hace algunos años, está 'poseida'.   
+La de mi pueblo, también, también está 'poseida'.  
+Desde hace poco, no mucho más de 10 días.  
+Es lo que pasa, después de un acto de 'toma de posesión'.   
+Han cambiado a los párrocos, y ya nos avisaron los anteriores que vendrían a 'tomar posesión' de la parroquia.  
+Y claro, así nos va.   
+
