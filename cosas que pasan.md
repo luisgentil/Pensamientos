@@ -91,3 +91,9 @@ Es lo que pasa, después de un acto de 'toma de posesión'.
 Han cambiado a los párrocos, y ya nos avisaron los anteriores que vendrían a 'tomar posesión' de la parroquia.  
 Y claro, así nos va.   
 
+### "12 reglas para vivir". Jordan B. Peterson
+He recortado una entrevista a Peterson, sobre su último libro. Bueno, la he fotografiado y guardado en Google Keep, que es como ahora se guardan estos recortes.  
+Además de otras cosas (sobres las ideologías etc), me quedo con esta frase / "regla":  _dedica tus esfuerzos a hacer cosas con significado, no aquello que más te convenga._
+
+Y ahora, pensando en el trabajo, me repito: 
+#### _dedica tus esfuerzos a hacer cosas con significado, no aquello que más te convenga._
