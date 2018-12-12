@@ -1,3 +1,22 @@
+### José María Castillo, teología que se entiende. 12/12/2018
+Llevo muchos años siguiendo a J Mª Castillo, teólogo, granadino, casi-jesuita. Es un hombre que escribe claro, sin paños calientes; se le entiende.  
+Habla de lo que pasa hoy, con ideas que se pueden aplicar hoy, en este mundo, al estilo de Pagola pero dando caña: claro y simple de entender; sin escolástica, vamos.  
+De hecho, su blog se llama "Teología sin censura", más claro el agua.  
+Quiero guardar la referencia a ciertos artículos que me impactan, y que no quiero perder.  
+
+##### ¿Qué futuro le espera a la Iglesia?
+3/12/2018 . http://blogs.periodistadigital.com/teologia-sin-censura.php/2018/12/03/ique-futuro-le-espera-a-la-iglesia-  
+
+##### ¿Religión o Evangelio?
+20/11/2018. http://blogs.periodistadigital.com/teologia-sin-censura.php/2018/11/20/p419947#more419947  
+
+##### La religión y la derecha política	
+31/10/2018. http://blogs.periodistadigital.com/teologia-sin-censura.php/2018/10/31/la-religion-y-la-derecha-politica  
+
+
+
+
+
 #### 26-11-2018
 ### "12 reglas para vivir". Jordan B. Peterson
 He recortado una entrevista a Peterson, sobre su último libro. Bueno, la he fotografiado y guardado en Google Keep, que es como ahora se guardan estos recortes.  
