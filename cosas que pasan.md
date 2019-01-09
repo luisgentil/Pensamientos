@@ -1,4 +1,18 @@
-### José María Castillo, teología que se entiende. 12/12/2018
+### Reflexiones en torno a la Sagrada Familia
+#### 30/12/2018
+Este año hemos celebrado la Sagrada Familia el último domingo de diciembre, como casi todos los años por otra parte. Pero me han surgido dos ideas que me resuenan como diferentes, no las había visto asi hasta ahora.  
+##### Primera iglesia
+Nos cuenta el párroco que la familia, cada familia, es la primera iglesia, donde se recibe la evangelización y se transmite la fe. Como le pasó a Jesús, con su madre y su padre. Así que, si esa es la primera iglesia, que valoramos tanto y es tan importante, ¿dónde queda el clero en ese esquema? Es más, ¿qué pinta el clero en ese esquema? Sin duda, no en la 'primera iglesia', será más bien una derivada de segundo orden,...  
+
+##### Sagrada Familia "disfuncional"
+Es curioso, siempre nos ponen de ejemplo a la sagrada familia, y seguro que está bien puesto. Pero la orientación suele ir al esquema tradicional, madre-padre, padres-hijos. Y está muy bien, por supuesto.  
+Pero también se puede ver de otra manera: una madre soltera, un hombre que acepta el hijo de otro, un hijo que tiene otro Padre,... Otro modelo de familia, tipo 'disfuncional' o 'reconstituido'.  
+Y es la visión alternativa de Dios, que siempre apuesta por los débiles, los excluidos, los pobres. Y esa es su familia.
+
+
+
+### José María Castillo, teología que se entiende. 
+#### 12/12/2018
 Llevo muchos años siguiendo a J Mª Castillo, teólogo, granadino, casi-jesuita. Es un hombre que escribe claro, sin paños calientes; se le entiende.  
 Habla de lo que pasa hoy, con ideas que se pueden aplicar hoy, en este mundo, al estilo de Pagola pero dando caña: claro y simple de entender; sin escolástica, vamos.  
 De hecho, su blog se llama "Teología sin censura", más claro el agua.  
@@ -15,10 +29,8 @@ Quiero guardar la referencia a ciertos artículos que me impactan, y que no quie
 
 
 
-
-
-#### 26-11-2018
 ### "12 reglas para vivir". Jordan B. Peterson
+#### 26-11-2018
 He recortado una entrevista a Peterson, sobre su último libro. Bueno, la he fotografiado y guardado en Google Keep, que es como ahora se guardan estos recortes.  
 Además de otras cosas (sobres las ideologías etc), me quedo con esta frase / "regla":  _dedica tus esfuerzos a hacer cosas con significado, no aquello que más te convenga._
 
